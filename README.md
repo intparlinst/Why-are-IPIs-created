@@ -1,2 +1,2 @@
-# Why-are-IPIs-created
-We seek to understand why governments create these assemblies
+# Why are IPIs created?
+First, we seek to understand why governments create these assemblies. There are currently three competing theories. These parliamentary assemblies could serve as a forum to coordinate policies. Others contend that the diffusion of an EU template makes governments add parliamentary assemblies. Finally, the perceived need for legitimacy in line with a domestic division of powers could persuade actors to create such an institution.
